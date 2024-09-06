@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:f4cc57cf-5b2c-3acd-bf36-1d457d78523e](https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:f4cc57cf-5b2c-3acd-bf36-1d457d78523e)
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: www.linkedin.com/in/jessie-gomez-536646229 </h3>
 <p align="left">
 </p>
 
